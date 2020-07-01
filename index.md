@@ -1,4 +1,4 @@
-## Portfolio  
+## My Ceramics Portfolio
 
 ![](./images/6artucla6.jpg)
 
